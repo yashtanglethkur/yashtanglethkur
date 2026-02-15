@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently an Intern<br>I'm looking to collaborate as a Freasher<br>I'm looking for help with small scale Companies<br>I'm studing MCA<br>Ask me about Management and have conversation with me <br>fun fact : ToExplore.<br>
+💼 I'm currently an Intern<br>🤝 I'm looking to collaborate as a Fresher<br>🏢 I'm looking for opportunities with small-scale companies<br>🎓 I'm studying MCA<br>💬 Ask me about Management and let's have a conversation<br>🚀 Fun fact: Always ready to explore<br>
 
 
 ## 🌐 Socials:
